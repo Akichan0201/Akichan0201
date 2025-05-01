@@ -7,7 +7,7 @@ Data Analyst - Software Engineer - Web Developer - Game Developer - Cyber Securi
 I have learn code for 2 years but it doesn't mean i can't do anything. Cause i love to learn something new so ask me anything you want!! And I love coding! 
 
 * 🌍  I'm based in Indonesia
-* ✉️  You can contact me at [adzkiaalmaghania701@gmail.com](mailto:adzkiaalmaghania701@gmail.com)
+* ✉️  You can contact me at [adzkialma@gmail.com](mailto:adzkialma@gmail.com)
 
 ### Skills
 
