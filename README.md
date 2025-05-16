@@ -1,7 +1,7 @@
 Hi 👋 My name is Akichan
 ========================
 
-Data Analyst - Software Engineer - Web Developer - Game Developer - Cyber Security
+Data Analyst | Data Scraper
 ----------------------------------------------------------------------------------
 
 I have learn code for 2 years but it doesn't mean i can't do anything. Cause i love to learn something new so ask me anything you want!! And I love coding! 
