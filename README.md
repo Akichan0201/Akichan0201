@@ -4,7 +4,7 @@ Hi 👋 My name is Akichan
 Data Analyst | Data Scraper
 ----------------------------------------------------------------------------------
 
-I have learn code for 2 years but it doesn't mean i can't do anything. Cause i love to learn something new so ask me anything you want!! And I love coding! 
+I have learn code for 1 years but it doesn't mean i can't do anything. Cause i love to learn something new so ask me anything you want!! And I love coding! 
 
 * 🌍  I'm based in Indonesia
 * ✉️  You can contact me at [adzkialma@gmail.com](mailto:adzkialma@gmail.com)
