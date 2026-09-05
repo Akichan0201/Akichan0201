@@ -14,6 +14,7 @@ Basically, I overthink the world and under-comment my code.
 
 * 🌍  I'm based in Indonesia
 * ✉️  You can contact me at [adzkialma@gmail.com](mailto:adzkialma@gmail.com)
+* follow my site adzkialma.my.id
 
 ### Skills
 
